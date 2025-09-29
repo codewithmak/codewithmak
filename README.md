@@ -4,7 +4,7 @@ Hi 👋 My name is Muthelo Kutama
 Software Engineer
 ----------------- 
 
-I am a 21-year-old creative content creator and entrepreneur with a passion for 
+I am a 23-year-old creative content creator and entrepreneur with a passion for 
 storytelling and media. I am also a versatile software developer who loves coding 
 and learning new technologies. I am currently pursuing a bachelor's degree in 
 Information Technology in Business Systems at Rosebank College, where I learn how 
